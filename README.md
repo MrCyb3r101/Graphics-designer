@@ -21,8 +21,7 @@ Feedback and Collaboration
 I welcome feedback on my projects and am open to collaboration opportunities. If you have any questions, suggestions, or partnership proposals, please feel free to reach out.
 
 # Contact Information
-[LinkedIn](https://pk.linkedin.com/in/ajmal-bukhari-57526a168) 
-[Behance](https://www.behance.net/ajmalbukhari06) Portfolio
+[LinkedIn](https://pk.linkedin.com/in/ajmal-bukhari-57526a168), [Behance](https://www.behance.net/ajmalbukhari06)
 
 Thank you for visiting the Graphic Designer repository. I hope you enjoy exploring my creative endeavors!
 
